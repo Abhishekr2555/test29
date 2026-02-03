@@ -9,7 +9,7 @@ asadada
 gggg
 ssadad
 vvvppppp
-ajdlajl
+ajdl
 cvbnm,.
 oopoppo
 wwadaw
