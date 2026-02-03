@@ -11,7 +11,6 @@ ssadad
 vvvppppp
 ajdlajl
 cvbnm,.
-asdfghj
 oopoppo
 wwadaw
 xdghgfffadadaaa
