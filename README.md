@@ -14,8 +14,7 @@ cvbnm,.
 oopoppo
 wwadaw
 xdghgfffadadaaa
-adadada
-adaaddawdawd
+
 ffadad
 adadam
 bbb
