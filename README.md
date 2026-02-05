@@ -7,10 +7,7 @@ ddd
 fff
 asadada
 gggg
-ssadad
-vvvppppp
-ajdl
-cvbnm,.
+
 oopoppo
 wwadaw
 xdghgfffadadaaa
