@@ -7,8 +7,4 @@ ddd
 fff
 asadada
 gggg
-bbb
-aewwwww
-ggggg
-adad
-adad
+
