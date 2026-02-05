@@ -7,13 +7,6 @@ ddd
 fff
 asadada
 gggg
-
-oopoppo
-wwadaw
-xdghgfffadadaaa
-
-ffadad
-adadam
 bbb
 aewwwww
 ggggg
