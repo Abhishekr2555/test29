@@ -12,5 +12,3 @@ aewwwww
 ggggg
 adad
 adad
-ggjgj
-hhhk
